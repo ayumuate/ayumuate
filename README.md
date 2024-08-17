@@ -1,4 +1,4 @@
-Hi, there! I'm **@ayumuate** or **Dysphoric Ayumuate （不安步根）**, a 19-year-old mundane student leading a mundane life after graduation of high school.
+Hi, there! I'm **@ayumuate** or **Dysphoric Ayumuate （不安步根）**, a 19-year-old mundane student leading a mundane life after graduating from high school.
 
 Not proficient in anything —which you can find since there's no repo—, not outgoing or social whatsoever, not looking cute or cool, I'm nothing but nobody in the vast cosmos, awaiting your random discovery.
 
