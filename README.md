@@ -11,7 +11,7 @@ I am what I belong to, not what others assigned to me wrongly. Having been *dysp
 * **Ayumu** Ayumu Sakura, the heroine of the manga 「おじさんが女子●生に悪いことを教える話」 ([*A Story About an Old Man Teaches Bad Things to a School Girl*](https://mangakakalot.com/chapter/ua920785/chapter_1)[^vpn]). Despite an NSFW name, it's actually a very attractive manga. Interestingly, a femboy named Ayumu showed up in 「AYUMU ちょろい男の娘のおはなし」 ([Choroi Otokonoko no Ohanashi](https://mangakakalot.com/manga/yo929441)[^vpn]).
 * **-ate** The suffix for esters (e.g. sulfate)[^ate].
 
-Contact me at ayumuate@outlook.com or my QQ account 3085604898.
+Contact me at ayumuate@outlook.com.
 
 [^dysphoria]: [Dysphoria - Wikipedia](https://en.wikipedia.org/wiki/Dysphoria)
 [^ate]: [*What Does Ate Mean in Chemistry*](https://science.blurtit.com/33087/what-does-ate-mean-in-chemistry)
